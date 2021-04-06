@@ -1,1 +1,1 @@
-# gitrini 
+# gitrini 화이팅!
